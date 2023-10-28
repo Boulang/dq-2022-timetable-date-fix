@@ -1,2 +1,2 @@
 # dq-2022-timetable-date-fix chrome Google
-fdj.fR chose date image format date heure selon le pays .automatique rtl tv programme.tours de France coupe du monde meteo mondial.carte du mondial aujourd'hui 
+fdj.fR chose date image format date heure selon le pays .automatique rtl tv programme.tours de France coupe du monde meteo mondial.carte du mondial aujourd'hui network 2022.programme tv foot rugby sport europe asie êtas unis .
